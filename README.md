@@ -10,3 +10,4 @@
 
 ![Alt text](https://raw.githubusercontent.com/dhimasadi/dhimasadi.github.io/main/IMG-20210110-WA0051%20(1).jpg)
 
+![Alt text](https://raw.githubusercontent.com/dhimasadi/dhimasadi.github.io/main/IMG-20210110-WA0048.jpg)
